@@ -10,7 +10,7 @@ c+h encouraged, minor <img src="https://64.media.tumblr.com/9e010e451a85002f4ec6
 
 sp/so279 2w3 efvl sang-mel
 
-i don't have a strict dni, i block freely <img src= "https://file.garden/Zy7nsVKnFHAuCMhW/pixels/red%20pixel/red108">
+i don't have a strict dni, just don't be an asshole <img src= "https://file.garden/Zy7nsVKnFHAuCMhW/pixels/red%20pixel/red108">
 
   </a>
 </p>
